@@ -7,9 +7,17 @@
 
 
 
+ㅤ<br>
+<img align="right" src="https://github.com/user-attachments/assets/c5d36ea2-0489-4bdd-8209-6bad4f924ee5" alt="image" /> 
+<p align="right">	<sup> 
+ <br> art by sawrunneer      </sup>
+
+
+
 
 > [!CAUTION]
 >  ( -_•)ᡕᠵデᡁ᠊╾━
+> 
 <table width="658" border="3" cellpadding="10" cellspacing="0" >
 <tr>
 <td>
@@ -21,3 +29,4 @@
   <p align="left"> tomska is my main interest talk to me abt his work ok
     <p align="left"> i can get shy in big groups n just freeze up sorry
 </details>
+
