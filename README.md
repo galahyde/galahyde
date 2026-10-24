@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center"> <img width="658" height="300" alt="LUVFOREVER" src="https://github.com/user-attachments/assets/53b4db9d-13cb-4143-a29b-679712673ad7" />
 
-<!--
-**galahyde/galahyde** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="right">	<sup> art by zephietnt       </sup>
+<p align="center"> 17 , ᓚ₍ ^. .^₎ almost always offtab or pretending to be >_<
+<p align="center"> i like eddsworld, visual novels, and ultrakill mostly
+<p align="center"> C+H ,   W2I pls be patient with me ok 
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+> [!CAUTION]
+>  ( -_•)ᡕᠵデᡁ᠊╾━
+<table width="658" border="3" cellpadding="10" cellspacing="0" >
+<tr>
+<td>
+
+ <p align="left"> i like to cuddle but almost never whisper first sorry
+ <p align="left">  i usually dont join cuddles when theres 2+ ppl idk unless told to
+ <p align="left"> be blunt with me I don't take hints at all
+<p align="left"> I don't mind group cuddles as long as everyone is ok w it ^_^
+  <p align="left"> tomska is my main interest talk to me abt his work ok
+    <p align="left"> i can get shy in big groups n just freeze up sorry
+</details>
