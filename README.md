@@ -1,4 +1,4 @@
-<p align="center"> <img width="658" height="300" alt="LUVFOREVER" src="https://github.com/user-attachments/assets/53b4db9d-13cb-4143-a29b-679712673ad7" />
+<p align="center"> <img width="658" height="300" alt="LUVFOREVER" src="https://github.com/user-attachments/assets/ca909cd0-e783-4f0f-8388-4d5ec437f669" />
 
 <p align="right">	<sup> art by zephietnt       </sup>
 <p align="center"> 17 , ᓚ₍ ^. .^₎ almost always offtab or pretending to be >_<
