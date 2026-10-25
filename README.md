@@ -25,8 +25,10 @@
  <p align="left"> i like to cuddle but almost never whisper first sorry
  <p align="left">  i usually dont join cuddles when theres 2+ ppl idk unless told to
  <p align="left"> be blunt with me I don't take hints at all
-<p align="left"> I don't mind group cuddles as long as everyone is ok w it ^_^
-  <p align="left"> tomska is my main interest talk to me abt his work ok
-    <p align="left"> i can get shy in big groups n just freeze up sorry
+ <p align="left"> I don't mind group cuddles as long as everyone is ok w it ^_^
+ <p align="left"> tomska is my main interest talk to me abt his work ok
+ <p align="left"> i can get shy in big groups n just freeze up sorry
+ <p align="left"> forgot 2 say i love ska and shooter games
+ <p align="left"> always open to reqs :D
 </details>
 
